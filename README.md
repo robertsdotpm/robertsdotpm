@@ -1,16 +1,20 @@
-## Hi there 👋
+## 
 
-<!--
-**robertsdotpm/robertsdotpm** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I liek 2 rub the soft under bellies of toads 🐸. I flip em' over and rub their little rellas raw. Why do I conjure such magics? Caz the toad maek cute noises 🤗.
 
-Here are some ideas to get you started:
+- 🥄 Fan of aul mas hearty broth. It keep me strong.
+- 🔒 Cryptography enthusist. A real ephemeral kinda hell.
+- 🍕 Love me cheese pizza! Simple as!
+- 🐍 Python Chad. Asyncio, slices, and regex.
+- 🩺 Ana main on Overwatch. I report sombra for hacking.
+- ⛓‍💥 Blockchain expert. "Ze blocks are chained."
+- 🥧 Alhamdulillah. He will be baked 🐱
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+"Sometimes, the penguin gets a bit confused... wanders off... Idk about 'insane' but... these 'deranged' penguins... even though it means certain death..." 🐧
+
+
+
+
+
+
+
